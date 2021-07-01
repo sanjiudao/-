@@ -54,4 +54,4 @@ ver 1.0.0：
 
 
 
-建议等信息可以留言，或者sanjiudao@gmail.com 作者：三九刀 https://www.bilibili.com/read/cv11965297 出处：bilibili
+建议等信息可以sanjiudao@gmail.com 
